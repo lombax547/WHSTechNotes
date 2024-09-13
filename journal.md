@@ -1,3 +1,6 @@
+#  september, 13,2024 
+for ms whitby you did everything fine i understood everything that you told us and iyour instuctions were crystal clear 
+for me i did not encounbter any problems or anything and i understoood everything that you said and thats it everything was fine
 #  september, 12, 2024
 for ms whitby you did everything fine i understood everything that you told us and iyour instuctions were crystal clear 
 for me i did not encounbter any problems or anything and i understoood everything that you said and thats it everything was fine 
