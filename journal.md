@@ -1,3 +1,5 @@
+# september 17, 2024 
+this week was a free week no jorunal
 # september 11, 2024
 no assighnments 9/11 cerimony  
 # september 10, 2024 
