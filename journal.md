@@ -1,3 +1,16 @@
+# october 21, 2024 
+Helpful: How does AI improve efficiency and innovation in industries like healthcare, education, or transportation? (answer)
+this story takes place a long time ago way back in the year 2024 where people were all big somethings and trhis all takes place in the big nothing called somewhere on the earth well some ways that AI helps with inovation and education and industrues and more is that it helps people with ideas and helps peole get work done it has the capibilty of making and creating a lovable product and more and it helps improve peoples brain cells but it makes peopel lazy and more but for the most part it also reduces labor and helps people with there life and more but for the most part with ai it helps people alot and it also reducing the administrative burden on medical professionals and more 
+Harmful: What are some risks AI poses, such as job automation, bias in algorithms, or cybersecurity threats? 
+well this story takes place back in the year 2024 where taco bell is still relvent and here we are ai can be dangerous to people for one ofn sevrral reasons one being job loss and people being put out of work and more that can lead to peopel being more violent and want to get rid of AI and the peole who created it and as sayed in the paragragh above it can lead to peopel being more lazy and want to be fat and eat chips all day but for the most part the whole peopel being put out of jobs is the more important one but here are someother reason wy it can be a threat to some people Automation-spurred job loss.
+Deepfakes.
+Privacy Violations.
+Algorithmic bias caused by bad data.
+Socioeconomic inequality.
+Danger to humans.
+Unclear legal regulation.
+Social manipulation
+but for the most part that it see yeah
 # october 17, 2024
 some ways on how computer science has changed or made our lifes better is simple because they teache you to break down problems into smaller steps. When you're coding, you're often faced with complex problems and they also show that  Coding teaches you to think logically. Coding teaches you to be creative
 so they just basically help you to think in a way that can help you solve problems left and right and they come inhandy for a lot of things and they also  enhances problem-solving, logical thinking, and creativity and more  encouraging problem-solving, supporting personal and collaborative projects, enabling experimentation, and providing practical applications and more they so say you in a situation were you have to find the problem all that coding stuff you learned will halp and it will take effect on your brain and make you think logiclly on something
