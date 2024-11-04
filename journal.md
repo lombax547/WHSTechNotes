@@ -1,10 +1,13 @@
 # november 4, 2024
 Why is it important to protect your personal and sensitive information when publishing online
-well some reasons why it is important to protect your personal information wether it be a project or something that is just as simple as a picture it can be dangerious if someone gets a hold of that information like they can sprerad it and use it for wrong and say your working on a project that can make you a lot of money say you send it to someon on accident they may figure it out and put it to work ands make money off of your idea and not credit you or say yourn abnk satatmnents and onther things they all can lead to bad things happning and thats not good and could lead to despesion so yeah
+well some reasons why it is important to protect your personal information wether it be a project or something that is just as simple as a picture it can be dangerious if someone gets a hold of that information like they can sprerad it and use it for wrong and say your working on a project that can make you a lot of money say you send it to someon on accident they may figure it out and put it to work ands make money off of your idea and not credit you or say yourn abnk satatmnents and onther things they all can lead to bad things happning and thats not good and could lead to despesion so yeah 
+
 What steps can you take to ensure that the information you share on platforms like GitHub or social media remains secure
 well according to the research i hav e done you can do the folling....Create an email address specifically for your GitHub account or other open source activities you can do that and you can also not be going on websites that you ani't got no business being on and just dont do stupid things with yuou gmail and also you can get a vpn and use that if you want but all an all don't be on insecure websites 
+
 Have you ever shared something online that you later realized was too personal? How would you handle that differently now
 ummm bot to my  i don't think so but if i were to share some information that i would veiw as to personal i would take it down and just hope no one saw it :] 
+
 How can you balance being open and collaborative in online spaces (like working with others on coding projects) while still protecting your privacy 
 so im going to try to answer this to the best if my ablitty so you just don't post or say anything personal AT ALLL!!!!!! SO FOR THE MOST PART thats it i guess
 # october 28, 2024
