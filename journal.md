@@ -1,3 +1,12 @@
+# november 12, 2024
+Choose a current event that interests you or impacts your community 
+so the current event i have choosen for this segment is SEMA
+
+In a paragraph, briefly summarize the event and explain how it relates to any of the concepts we’ve been learning in class (e.g., problem-solving, technology, or data analysis)
+so sema is a place were car inthuseist go to show of there builds like a really big youtubers go to show of there builds to like whistlin diesel he toook his charger to sema and it got some attention and thats really the gist of it all thye just go and regoister there mighty builds for the world to see anything from a old rustit out muscle car to a glossy jdm car to any other import out there on the market and sema can have a hudge impact on my community because it helps people to grow in there own creativity and it helps people think outside the box because they are exposed to new things like ideas that they got fomr other people and they can take and make improvements to there own builds becasue of somebodyelse idea's and more so yeah and it brings a lot of people togather to just hang out and make new friends and that helps a lot anmd python helps to make it all possible 
+
+In a second paragraph, reflect on how advancements in computer science or technology could play a role in addressing this event or similar issues in the future
+so one is you got to sell ticjest some how and you gotta need a program for that 
 # november 4, 2024
 Why is it important to protect your personal and sensitive information when publishing online
 well some reasons why it is important to protect your personal information wether it be a project or something that is just as simple as a picture it can be dangerious if someone gets a hold of that information like they can sprerad it and use it for wrong and say your working on a project that can make you a lot of money say you send it to someon on accident they may figure it out and put it to work ands make money off of your idea and not credit you or say yourn abnk satatmnents and onther things they all can lead to bad things happning and thats not good and could lead to despesion so yeah 
