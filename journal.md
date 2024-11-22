@@ -1,3 +1,5 @@
+# november 22, 2024 
+so for my thanks giving break is nothing just goping to play games and do other stuff i guess and otherr stuff           woppa gundam style 
 # november 12, 2024
 Choose a current event that interests you or impacts your community 
 so the current event i have choosen for this segment is SEMA
