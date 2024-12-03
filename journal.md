@@ -1,4 +1,4 @@
-# december 2,
+# december 2, 2024
 Artificial intelligence (AI) continues to shape the way we live and work. This week, research one recent development in AI or another emerging technology (e.g., quantum computing, renewable energy tech, AR/VR, etc.). Summarize what you learned and share your thoughts on how it could impact society, your future career, or daily life 
 so somwthings that AI can help with for example
 Self-driving cars these suckers can help us with so much say for example you pass out at the wheel and the car is in motion well say no more becasue the wheel has sene=cersd that can tell if your hand sare on the wheel and not and if your hands are not on it the car will breack sofly to wake you up and if your cionditions remain unresponsive then the car will pool over and sound a alarm to wake you up and 911 may be called in a case of emergency 
