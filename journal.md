@@ -1,3 +1,6 @@
+# january  13, 2025
+so as the industy shifts to AI there are somethings that we need to be awere of and thats the fact that some peopel may lose a job because AI has taken there place and that can be very sad and disheartning etc 
+but i feel that this shift could cause a very bad thing because as people mindlessly switch to making a regular factorys to completly automated factorys that could put them in a tight spot and that being the reason that the fact tjhat they fired peopel and with people out of the job nobody can buy things and that would lead to a drop in sells and pretty much everyone who works will be effected and some others to not just the averge work man but yeah they need to be caerful of how much they want to puch this AI stuff
 # january  8, 2025
 so looking back on last semaester i loved everything about this class and it was fun and yeah other then that i don't reallt need see a need for improvement i can't think of anything and as far as im concerned is that my project went well 
 looking ahead like i would love how to program more games and other things like puting togather a whole mother board and being able to program a computer and much more etc
