@@ -1,3 +1,15 @@
+# january  21, 2025
+How do you think government intervention impacts technology companies and their users?
+well if the government thinks that your company is a security threat they will act and ban your platform and try to fix it and thye will work with you to fix the issue 
+
+In your opinion, how could companies like TikTok address security concerns while continuing to operate globally?
+well in tiktoks case they will have to sell it in oder for us to keep it and as for other companys ut can very in terms of adressing things like that because there is a verity of reasons to get something like tiktok banned so it can really very and each circum stans is different to it just depends on th eoptions whenn it come to adressing thingfs like that 
+
+Imagine you’re a developer at TikTok working on a new feature to increase user privacy. Describe one feature or policy you would implement and why.
+well one feature i wold add is a feature that make your phone taste like choclete and other tasty foods and even feet very sticky feet and very smelly feet and it would taste like washing ditergent and the litle drop dots that you put into the washer and the little balls that had the different stuff that you put into the dishwasher and that it will work ho0pefully and it might not blowup the phone (nfjksabvjhrefhvbfdhjvbhjfbvhdbnfvnhjbjhvcbhjvcbhgvdfihncvkjnbdfkgnfdbndfgigfibfiyduhbgkfhdhviyfdhgikhfdhgtdkjbndgiuhtiujnbgfhbkgdjfbngkhn not responsible for death if casued)
+What lessons can you take from this situation to apply to your own projects in this course?
+well make sure that it orignates in the U.S because the U.S does not like forgen stuff like tiktok well the government and just makes sure that it is well taken care of and others tuff like that 
+
 # january  13, 2025
 so as the industy shifts to AI there are somethings that we need to be awere of and thats the fact that some peopel may lose a job because AI has taken there place and that can be very sad and disheartning etc 
 but i feel that this shift could cause a very bad thing because as people mindlessly switch to making a regular factorys to completly automated factorys that could put them in a tight spot and that being the reason that the fact tjhat they fired peopel and with people out of the job nobody can buy things and that would lead to a drop in sells and pretty much everyone who works will be effected and some others to not just the averge work man but yeah they need to be caerful of how much they want to puch this AI stuff
