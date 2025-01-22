@@ -7,6 +7,7 @@ well in tiktoks case they will have to sell it in oder for us to keep it and as 
 
 Imagine you’re a developer at TikTok working on a new feature to increase user privacy. Describe one feature or policy you would implement and why.
 well one feature i wold add is a feature that make your phone taste like choclete and other tasty foods and even feet very sticky feet and very smelly feet and it would taste like washing ditergent and the litle drop dots that you put into the washer and the little balls that had the different stuff that you put into the dishwasher and that it will work ho0pefully and it might not blowup the phone (nfjksabvjhrefhvbfdhjvbhjfbvhdbnfvnhjbjhvcbhjvcbhgvdfihncvkjnbdfkgnfdbndfgigfibfiyduhbgkfhdhviyfdhgikhfdhgtdkjbndgiuhtiujnbgfhbkgdjfbngkhn not responsible for death if casued)
+
 What lessons can you take from this situation to apply to your own projects in this course?
 well make sure that it orignates in the U.S because the U.S does not like forgen stuff like tiktok well the government and just makes sure that it is well taken care of and others tuff like that 
 
