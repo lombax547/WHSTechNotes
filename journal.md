@@ -1,4 +1,4 @@
-# febuary  3, 2025
+# february  3, 2025
 1.Air Traffic Control Systems – How do computer algorithms manage airspace and prevent collisions? 
 well one way that computers control the algorithms is simple they just monitor aircraft postions like they see were the plane is at and if needed they can tell the piolet to change postiions to avoid another plane or a object 
 2.Automation & AI in Aviation – The role of autopilot systems, real-time alerts, and AI-driven decision-making. 
