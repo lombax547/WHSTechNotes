@@ -1,3 +1,5 @@
+# february  11, 2025
+one way that the nfl teams use AI they use it to determine how well the players are so that they can try to get them on the team it pretty much resembles the money bag movie were they use AI and othe data to determine if they want that pplayer incase they should go up for bids and that pretty much it they use the data to see how well they play and if they want them like its that simple and how much they costa nd how much there worth and if they can use them they also try not to make emoitonal descions so yeah thats why they use AI
 # february  3, 2025
 1.Air Traffic Control Systems – How do computer algorithms manage airspace and prevent collisions? 
 well one way that computers control the algorithms is simple they just monitor aircraft postions like they see were the plane is at and if needed they can tell the piolet to change postiions to avoid another plane or a object 
