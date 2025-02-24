@@ -1,3 +1,15 @@
+# february  24, 2025
+How can technology be used to help educators and service providers stay updated on evolving youth language?
+so some ways that technology can help people with there langauge is that it exposes them to new language  and it shows the person that works there a new verity of different people that speak a certain way it also helps to teach the person worling there how to speak differently 
+
+What are some potential benefits and challenges of integrating slang translation tools into educational apps, AI chatbots, or online resources? 
+so some challenges that may come from intergrating slang with normal talk is that it may take a while for people to talk the way they need to and 2 now all slang is good some slang are used as gang words and others are **affiliated** with other gangs and other stuff so other then the whole part of taking awhile and possibly maiking gang members mad and wanting to kill you for what you said that it 
+
+Should schools or youth organizations formally track and teach appropriate slang to improve communication, or is it best left informal?
+i would say yes and no primarily because one it would be a great idea if kids (respecfuly)so fliping stupid they use words that are bad and are already bad and can already land them the biggest beating of a life time and yeah but on the positive note it can help people comunicate with gen beta 
+
+How might misunderstandings of slang impact interactions between adults and youth in schools, counseling, or mentoring programs?
+well as i stated in the previous statements there is both a good side and a bad side of slang it there can be insuilts and there are compluments so it can be positive and negotive its just like basic english 
 # february  11, 2025
 one way that the nfl teams use AI they use it to determine how well the players are so that they can try to get them on the team it pretty much resembles the money bag movie were they use AI and othe data to determine if they want that pplayer incase they should go up for bids and that pretty much it they use the data to see how well they play and if they want them like its that simple and how much they costa nd how much there worth and if they can use them they also try not to make emoitonal descions so yeah thats why they use AI
 # february  3, 2025
