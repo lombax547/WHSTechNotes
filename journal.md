@@ -1,3 +1,11 @@
+# march  6, 2025
+| Name    | Power | Challenge |
+| :------ | :---- | :-------- |
+| Zara    |telekenesis|secure a building|
+| Aether  |weather manipulation|prevent assassination|
+| Thorne  |invisibility|underwater rescue|
+| Silver  |mind control|Retrive stolen goods|
+| Tangier |shape shifting|extract prisoner|
 # february  24, 2025
 How can technology be used to help educators and service providers stay updated on evolving youth language?
 so some ways that technology can help people with there langauge is that it exposes them to new language  and it shows the person that works there a new verity of different people that speak a certain way it also helps to teach the person worling there how to speak differently 
