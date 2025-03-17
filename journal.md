@@ -1,3 +1,12 @@
+# march  17, 2025
+What types of technology did you use most often?
+so the tecnolgy i used the most was my phone and playstation becasue thats how i played with my friends
+
+How did this technology help you, entertain you, or challenge you in some way? 
+well the tec kept me from being bored and not chill    i was a chill guy for the whole spring break 
+
+Can you connect any of your technology use to what we learn in this class? Think about problem-solving, coding, game development, app functionality, or other related skills.
+well i can because some of the tec that i used had to deal with code and it literly needed code to functoin code like python and java script 
 # march  6, 2025
 | Name    | Power | Challenge |
 | :------ | :---- | :-------- |
