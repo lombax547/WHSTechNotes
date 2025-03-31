@@ -1,11 +1,14 @@
 # march  31, 2025
 How are you feeling right now—mentally, emotionally, and physically?
 so in terms of mental state i am doing good and im just chilling and im just vibing and just existing for now 
+
 What’s been the most stressful part of school lately?
 so the most hard part about school right now is the fact that people are getting lazy and anoying and i want the school to be done at this point but other then that im just exstinging right now
 What are some things you do (or could do) to take care of yourself during stressful times? well i just chill read the bible and just play my games and chat with friends and family 
+
 What’s one goal you have for the rest of the school year? How will you stay motivated to reach it?
 so the goal is to not get summer school ofc and to stay motivated my grades becasue if i just stop caring then my stuff is gonna say HELP and well im going to have to move to mars becasue my mom is going to blow me up in to pieceas and there is going to be no more me im going to go boom  im going to be nuked 
+
 who is someone you can talk to when you’re feeling overwhelmed? Why do you trust them?
 so the person i talk to is god becaus he listens to me and he actully cares for me and another friend named cosmin we juist chill and vibe most of the time
 
