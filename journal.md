@@ -1,3 +1,6 @@
+# april 7, 2025
+Students will be able to explain how artificial intelligence can support their learning by analyzing a real-world example of AI improving test scores in a Texas school.
+so one way they can use AI in schools to help grade i that it can do a search and check what questions that the kids taking the test missed and with that information the teacher vcsn use it to help better the lession plans and how that lession can be teached and it can help a lot escpeically when its being used when its suposed to and yeah thats it for the mos part it is really helpful and what not
 # march  31, 2025
 How are you feeling right now—mentally, emotionally, and physically?
 so in terms of mental state i am doing good and im just chilling and im just vibing and just existing for now 
