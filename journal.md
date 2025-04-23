@@ -2,9 +2,11 @@
 # april 14, 2025
 Do you believe such bans are beneficial or detrimental to students?
 so my oppinion on this is that they are wasting there time on something like this but it can be benifical for somethings like more peopel will have no choice but to learn and stuff like that it can help with addittudes and stuff but for the most part i think its not benifical becase they are tryiing to stop cyberbulling which is a big task to complete and just taking kids phones away while there at school really is not going to stop cyberbulling and that is the whole goal all there doing is delaying it because anybody with common sence something that is not so common no more will know that soemthing like this is not going to work and in a way its a waste of time but benifical becasue kids will have no choice but to learn Bans on books or cell phones in schools have both potential benefits and drawbacks for students
+
 How might these policies influence student behavior, safety, and learning?
 well for a while kids will just be mad well the ones that use there phone non-stop and yeah they will be mad and maybe through a fit and just whine like big babyes who lost there bottle and want it back and as for saftey they may do somethings to get there phones back or to get the ban lifted and they may rick there lifes for it which does not make any sense in any world 
 Positive and inclusive policies can foster a safe and supportive environment, leading to improved behavior and academic outcomes.
+
 If implemented in your school, how would you respond to such restrictions?
 i problay be a bit ticked becasue i use my phone to watch videos and to listen to music so i can do my work and all that jazz but for the most part i most likely would not care i mean i came from metzger and they were trying to do the same thing and i still didn't listen i just didn't get caught don't get caught they can't punish you in any way 
 # april 7, 2025
