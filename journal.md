@@ -1,3 +1,15 @@
+# may 12, 2025
+Recently, a dangerous trend called the “Chromebook Challenge” has been circulating online. This involves inserting objects like pencils into USB ports, which can cause fires or destroy the device. As a digital citizen and future tech professional, how should we respond to trends that put people and property at risk? What responsibilities do we have when using school technology? How would you explain the real-world consequences of this behavior to someone who thinks it’s “just a joke”? 
+so my thought on this whole trend is that people will do anything for clout nower days and its just getting sad becasue not only are they prompting to destoy school equipment that is bad but its just uncalled for and it sucks for the people who have to pay for those type of things and its just not right so for the most part its just very stupid and it needs to stop and i think its just poitless becasue your runing it for everyone becasue you want to look cool on tik tok and youtube 
+# may 5, 2025
+A challenge called “100 Men vs 1 Gorilla” went viral after a famous YouTuber suggested testing it. The idea: could 100 unarmed people defeat a silverback gorilla? Some people say yes with strategy; others say it’s impossible. 
+so looking at the prompt i am lead to beilve that it wold be impossable and tha it would just be a complete waste of time because groillas are very strong creatures and can easily rip us apart in a matter of seconds Human muscles are about half and half, other apes all have more fast twitch than slow, but gorilla muscles are an incredible 85-plus-percent fast-twitch fibers — the most of any ape. So, pound for pound of muscle mass, they are much much much more powerful than we do and thats just proof enogh to show that we do not stand a chance well not a fair chance aginst that thing 
+# April 28, 2025 
+| Name     | Flavor | Occasion | Price |
+| :------- | :----- | :------- | :---- |
+| Sally    |chocolate|graduation|$35.00| 
+| Michael  |vanilla|farewll party|$37.00| 
+| Emma     |carrot|birthday party|$39.00| 
 
 # april 14, 2025
 Do you believe such bans are beneficial or detrimental to students?
