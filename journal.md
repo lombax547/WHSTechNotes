@@ -1,3 +1,11 @@
+# may 13, 2025
+| Name   | Age | Toy |
+| :----- | :-- | :-- |
+| Max    | 3 yr| train | 
+| Kylie  |4 yr| dinosuar |
+| Emma   |5 tr|  plush dog    |
+
+
 # may 12, 2025
 Recently, a dangerous trend called the “Chromebook Challenge” has been circulating online. This involves inserting objects like pencils into USB ports, which can cause fires or destroy the device. As a digital citizen and future tech professional, how should we respond to trends that put people and property at risk? What responsibilities do we have when using school technology? How would you explain the real-world consequences of this behavior to someone who thinks it’s “just a joke”? 
 so my thought on this whole trend is that people will do anything for clout nower days and its just getting sad becasue not only are they prompting to destoy school equipment that is bad but its just uncalled for and it sucks for the people who have to pay for those type of things and its just not right so for the most part its just very stupid and it needs to stop and i think its just poitless becasue your runing it for everyone becasue you want to look cool on tik tok and youtube 
